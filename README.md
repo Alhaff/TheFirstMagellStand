@@ -1,1 +1,1 @@
-# TheFirstMagellStand
+# The First Mage'll Stand
